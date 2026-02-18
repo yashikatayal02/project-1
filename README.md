@@ -1,1 +1,1 @@
-# project-1
+# Museum of Indian Art
